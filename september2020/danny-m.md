@@ -1,0 +1,4 @@
+- Name: Danny Mulcahy
+- Likes: Reading, audiobooks, football, cycling, running, cheese, horchata, hikes & rom-coms
+- Dislikes: Cucumbers, coffee, olives & when Liverpool win football matches
+- Favourite Quote: If you see someone without a smile, give them one of yours :) 
